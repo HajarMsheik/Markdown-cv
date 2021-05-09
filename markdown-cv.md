@@ -18,7 +18,7 @@ ____
 **Interests**
 ____
 Networking<br>
-Photography<br><br>
+Photography<br>
 Editing<br>
 **References**
 ___
