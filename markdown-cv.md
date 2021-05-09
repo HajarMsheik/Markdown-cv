@@ -19,7 +19,7 @@ ____
 ____
 Networking<br>
 Photography<br><br>
-Editing
+Editing<br>
 **References**
 ___
 References available upon request.
