@@ -2,7 +2,7 @@
 #  **Hajar Msheik**
 <img width="100" src="https://github.com/HajarMsheik/Markdown-cv/blob/main/Hajar.jpg?raw=true"><br>
 Email: <hajar.msheik@gamil.com><br>
-www.linkedin.com/in/HajarMsheik<br>
+https://www.linkedin.com/in/hajar-msheik-01a19513a/<br>
 Phone: 78805874<br>
 address: Choueifat<br><br>
 
